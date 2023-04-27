@@ -11,6 +11,7 @@ Mi nivel actual de inglés es C2 Proficient (EF SET Certificate)
 ¡Gracias por tomarte el tiempo de leer!
 
 Dejo aquí mi contacto por cualquier consulta: 
+
 🔗 Email: alejandro.randazzo@hotmail.com
 🔗 LinkedIn: https://www.linkedin.com/in/alejandro-randazzo-793384262/
 
